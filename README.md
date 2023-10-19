@@ -32,6 +32,7 @@ Anyone can register for a free account on X(Formerly, Twitter).
 
 
 Why you need to use X(formerly, Twitter)
+
 In my opinion, X(formerly, Twitter) can be beneficial to you in many ways possible, but here are four:
 
 Stay Up-to-date
